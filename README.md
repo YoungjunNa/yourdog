@@ -39,6 +39,6 @@ A lecture for you and your dog
 - **레포트**
 
 ## 6주차  
-**Take-home massage**  
+**Take-home message**  
 - 주의해야 할 원료들  
 - 당신과 당신의 개를 위한 영양학  
