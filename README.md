@@ -43,4 +43,4 @@ A lecture for you and your dog
 - 당신과 당신의 개를 위한 영양학  
 
 ---------------------------------------
-Email: ruminoreticulum@gmail.com
+💌 ruminoreticulum@gmail.com
